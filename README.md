@@ -1,0 +1,1 @@
+# 2022010_uas_sistem_operasii
